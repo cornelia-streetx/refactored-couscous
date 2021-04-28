@@ -1,1 +1,1 @@
-TTemplate Designed by Srishti Mishra
+Template Designed by Srishti Mishra
